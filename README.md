@@ -1,1 +1,1 @@
-# photography pahe
+# photography page
